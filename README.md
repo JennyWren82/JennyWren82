@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JennyWren82
 - 👀 I’m interested in expanding my knowledge base
-- 🌱 I’m currently earning my Masters in Cybersecurity 
+- 🌱 I earned my Masters in Cybersecurity in 2024
 - 💞️ I’m looking to collaborate on future projects
 - 📫 How to reach me ... It's a little difficult at the moment, but I'll update if things change.
 
