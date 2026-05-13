@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JennyWren82
+- 👋 Hi, I’m Jenny of Little Wren Software
 - 👀 I’m interested in expanding my knowledge base
 - 🌱 I earned my Masters in Cybersecurity in 2024
 - 💞️ I’m looking to collaborate on future projects
